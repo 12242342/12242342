@@ -1,0 +1,2 @@
+A Data Analyst with demonstrated experience in data analysis completed a bachelor's degree in Petroleum Engineering from Suez University ,A talented and eager to learn individual who can solve business problems by converting data into information. Clear understanding of business intelligence tools, I'm able to deliver excellent analysis that will support a company’s commercial decision-making and finical reporting processes, enjoy finding solutions and working on development plans
+
